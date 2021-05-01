@@ -1,4 +1,4 @@
-### Please redirect yourself to [R3nTru3W4rn9](https://github.com/r3ntru3w4n9) if you somehow end up here.
+### Please redirect yourself to [RenTrueWang](https://github.com/rentruewang) if you somehow end up here.
 
 ---
 
