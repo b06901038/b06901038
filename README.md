@@ -4,7 +4,7 @@
 
 ### What is this account?
 
-This account is for things I don't want to put on my main account. These are projects that I started but don't think are good enough.
+This account is for things I don't want to put on my main account. These are projects that I started but don't think are good enough. Perhaps this account should be renamed **rentruewang-archive**?
 
 ### Why is this account here then?
 
